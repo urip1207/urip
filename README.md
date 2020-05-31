@@ -1,0 +1,2 @@
+# urip
+Saya mw belajar
